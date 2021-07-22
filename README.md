@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mhlockwood
+- 👀 I’m interested in microbes, physics, sustainable agriculture and baking. 
+- 🌱 I’m currently learning about the impact of permafrost thaw on microbial communities. 
+- 📫 How to reach me -- mlockwood@ku.edu
